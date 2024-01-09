@@ -10,4 +10,4 @@ Ivan Kos
 
 ## 9.1.2024
 
-Ich habe am Modul 164 6 aufträge erledigt und aufgeholt was ich vor den Ferien durch meine Krankheit nicht machen konnte. 
+Ich habe am Modul 164 6 aufträge erledigt und aufgeholt was ich vor den Ferien durch meine Krankheit nicht machen konnte. In dieser Stunde konnte ich viel meinen Schulkollegen helfen bei der Arbeit was mir sehr Motivation gab konzentriert weiterzuarbeiten. 
