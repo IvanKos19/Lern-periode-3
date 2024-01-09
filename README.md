@@ -9,3 +9,5 @@ Ivan Kos
 3. Ich finde ein geeignetes Projekt für mich wäre mich vollstandig auf das Datenbank Modul 164 konzentriere damit ich meine Noten wieder instand bringen kann.
 
 ## 9.1.2024
+
+Ich habe am Modul 164 6 aufträge erledigt und aufgeholt was ich vor den Ferien durch meine Krankheit nicht machen konnte. 
